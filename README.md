@@ -6,7 +6,7 @@
 - 📚 Avid reader and health and fitness optimizer
 - 👨‍👩‍👧‍👦 3x dad & 1x husband
 - 🔥 Now fire starter
-- Find me on X: @dancumberland
+- 📧 Find me on X: @dancumberland
 
 <!---
 dancumberland/dancumberland is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
